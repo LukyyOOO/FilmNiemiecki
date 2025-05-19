@@ -1,0 +1,1 @@
+skrypt filmu na niemiecki
